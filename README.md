@@ -4,6 +4,5 @@ el invierno se acerca
 y con el los otros
 el largo verano ah finalizado 
 valarmoguris
-valardhaeris
 
 ya gano messi
